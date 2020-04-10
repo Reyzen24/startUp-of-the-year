@@ -1,1 +1,0 @@
-# startUp-of-the-year
